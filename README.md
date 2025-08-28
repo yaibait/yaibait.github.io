@@ -1,0 +1,1 @@
+# yaibait.github.io
